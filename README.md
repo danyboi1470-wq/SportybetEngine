@@ -1,2 +1,0 @@
-# SportybetEngine
-Football is 
